@@ -1,3 +1,3 @@
 # FixPng
 
-![Image](image/dom_mini_project_countries_day_6.1.gif)
+![Image](GettyImages-541753931-5947d1f43df78c537b3949ef.jpg)
